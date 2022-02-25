@@ -1,2 +1,0 @@
-# abel-daniel
-personal portfolio
